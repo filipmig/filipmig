@@ -4,3 +4,4 @@
 - I love create web pages, this is my hobby.
 - I studied in Politechnika Świętokrzyska (field of study - Informatic, I'm engineer)
 - I would like to find job, where I can create web pages and learn new options about it.
+- My email: filipmigas91@gmail.com
